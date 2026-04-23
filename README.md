@@ -55,6 +55,7 @@ Each option was evaluated based on:
 
 ---
 
-## 👤 OGBONNA HELEN AKUNNA- helenakunna28@gmail.com
+## 👤 
 
-[Your Name]
+## OGBONNA HELEN AKUNNA
+## helenakunna28@gmail.com
